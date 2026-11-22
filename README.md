@@ -1,2 +1,2 @@
 # GHOSTRIDER
-Talent at its best
+young inventor KENYA
